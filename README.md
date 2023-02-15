@@ -9,6 +9,5 @@ Become iOS indie developer
 Vacay in Japan
 
 Eat Filipino food for lunch
-Or maybe Greek?
 
 
