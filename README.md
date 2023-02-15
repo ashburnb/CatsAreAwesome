@@ -8,4 +8,6 @@ Crush Bootcamp
 Become iOS indie developer
 Vacay in Japan
 
+Eat Filipino food for lunch
+
 
